@@ -1,0 +1,2 @@
+# premium-steam-bend-boat-001-steam-bending-ribs-workshop-pl
+Stop wasting expensive wood and time with guesswork—turn your steam bending rib workshop from chaotic trial-and-error into a repeatable, predictable process.  The Steam Bending Ribs Workshop Planner is the only Notion template built specifically for the iterative, material-intensive workflow of steam bending. It replaces sticky notes, spreadsheets,
